@@ -1,4 +1,4 @@
-# Hi there, I'm [ajie](https://ajiekusumadhany.com/).
+# Hi there, I'm [Rubi](https://rubii.my.id/).
 
 ![image](./header_.png)
 
